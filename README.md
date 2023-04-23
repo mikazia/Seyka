@@ -20,3 +20,6 @@ Seyka est un bot discord français, animé,utilitaire et fun français,
 Possédant actuellement 2 pages helps ,
 Et une multitude de commandes.
 💚💚💚💚♥️♥️💚
+
+💚💚💚💗💜💜💗💜💗💜💗💜💕💜💗💜💕💜💕💜💗💗💜💜💗💗💜💗💜💗💜💗💜
+Veuillez naviguer entre les pages pour en savoir plus
