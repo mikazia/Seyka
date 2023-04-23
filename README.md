@@ -23,3 +23,4 @@ Et une multitude de commandes.
 
 💚💚💚💗💜💜💗💜💗💜💗💜💕💜💗💜💕💜💕💜💗💗💜💜💗💗💜💗💜💗💜💗💜
 Veuillez naviguer entre les pages pour en savoir plus
+![seyka](https://github.com/mikazia/Seyka/blob/main/IMG_20230423_044858.png)
